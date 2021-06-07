@@ -16,4 +16,4 @@ If you have any questions feel free to message me!
 
 -----------
 
-Corner Taken Quickly... ORIGIIIIIII!!!!!!!!"# CornerTakenQuickly" 
+Corner Taken Quickly... ORIGIIIIIII!!!!!!!!
